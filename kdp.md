@@ -10,7 +10,7 @@ In this book, we'll cover topics such as workplace autonomy, employee empowermen
 
 This book is like having a leadership coach at your fingertips, ready to guide you through every aspect of building autonomy and trust in the workplace. By the end of this book, you'll have all the tools and strategies you need to create a culture that empowers employees to take ownership of their work, contribute to the success of the organization, and achieve optimal results. So let's get started!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 Employee autonomy
