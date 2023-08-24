@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [Importance of building autonomy and trust in the workplace for personal and professional development](chapter-1-1.md)
   - [Benefits of building autonomy and trust in the workplace to empower employees and drive results](chapter-1-2.md)
 - [Chapter 2: Understanding Autonomy and Trust in the Workplace](chapter-2.md)
