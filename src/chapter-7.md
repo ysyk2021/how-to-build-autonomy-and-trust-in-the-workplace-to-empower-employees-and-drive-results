@@ -1,5 +1,3 @@
-Chapter 7: Promoting Open Communication and Collaboration
-=========================================================
 
 Promoting open communication and collaboration is essential for building autonomy and trust in the workplace. In this chapter, we will explore the importance of promoting open communication and collaboration, strategies for doing so, and using team-building exercises and feedback loops.
 

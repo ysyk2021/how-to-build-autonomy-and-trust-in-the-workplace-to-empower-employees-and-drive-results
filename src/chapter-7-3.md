@@ -1,5 +1,3 @@
-Using Team-Building Exercises and Feedback Loops
-===========================================================================================================
 
 In this chapter, we will explore the importance of promoting open communication and collaboration in the workplace. We will discuss specific strategies for building strong, collaborative teams, including team-building exercises and feedback loops.
 

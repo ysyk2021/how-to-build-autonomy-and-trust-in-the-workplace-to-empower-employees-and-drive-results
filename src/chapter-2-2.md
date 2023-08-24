@@ -1,5 +1,3 @@
-The impact of autonomy and trust in the workplace on personal and professional development
-========================================================================================================================================================
 
 Autonomy and trust are critical components of building a successful and engaged workforce. In this chapter, we'll explore the impact of autonomy and trust in the workplace on personal and professional development.
 

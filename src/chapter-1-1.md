@@ -1,5 +1,3 @@
-Importance of Building Autonomy and Trust in the Workplace for Personal and Professional Development
-=============================================================================================================================
 
 In addition to the benefits for organizations, building autonomy and trust in the workplace can also have significant impacts on personal and professional development for employees.
 

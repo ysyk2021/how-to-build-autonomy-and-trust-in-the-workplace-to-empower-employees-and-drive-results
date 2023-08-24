@@ -1,5 +1,3 @@
-The Role of Recognizing and Rewarding Achievement in Building Autonomy and Trust in the Workplace
-===================================================================================================================================================
 
 In this chapter, we will explore the importance of recognizing and rewarding achievement in building autonomy and trust in the workplace. We will discuss specific strategies for recognizing and rewarding employee achievement, and how these efforts can help create a positive and supportive work environment.
 

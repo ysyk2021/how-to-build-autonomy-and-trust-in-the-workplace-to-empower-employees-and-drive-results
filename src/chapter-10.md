@@ -1,5 +1,3 @@
-Chapter 10: Applying Autonomy and Trust Skills to Empower Employees and Drive Results
-=====================================================================================
 
 In this final chapter, we will explore the importance of demonstrating leadership and communication skills when applying autonomy and trust skills to empower employees and drive results.
 

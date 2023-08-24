@@ -1,5 +1,3 @@
-Methods for Measuring Success in Building Autonomy and Trust in the Workplace
-===========================================================================================================================================================
 
 In this chapter, we will explore specific methods for measuring success in building autonomy and trust in the workplace. We will discuss various metrics and indicators that can be used to assess the effectiveness of efforts to build autonomy and trust, as well as strategies for collecting and analyzing data.
 

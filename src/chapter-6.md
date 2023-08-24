@@ -1,5 +1,3 @@
-Chapter 6: Allowing Flexibility and Decision-Making Authority
-=============================================================
 
 Allowing flexibility and decision-making authority is an essential aspect of building autonomy and trust in the workplace. In this chapter, we will explore the role of flexibility and decision-making authority in building autonomy and trust, strategies for doing so, and using delegation and empowerment techniques.
 

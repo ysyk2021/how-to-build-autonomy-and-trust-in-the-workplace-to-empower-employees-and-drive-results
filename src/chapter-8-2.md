@@ -1,5 +1,3 @@
-Strategies for Recognizing and Rewarding Achievement
-======================================================================================================
 
 Recognizing and rewarding achievement is an important aspect of building autonomy and trust in the workplace. In this chapter, we will explore strategies for recognizing and rewarding achievement to empower employees and drive results.
 

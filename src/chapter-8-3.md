@@ -1,5 +1,3 @@
-Using Performance-Based Incentives and Recognition Programs
-=============================================================================================================
 
 In this chapter, we will explore the use of performance-based incentives and recognition programs for recognizing and rewarding achievement. These types of programs can be particularly effective for motivating employees to achieve their goals and driving results for the organization.
 

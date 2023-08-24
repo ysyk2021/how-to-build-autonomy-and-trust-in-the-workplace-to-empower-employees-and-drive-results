@@ -1,5 +1,3 @@
-Chapter 2: Understanding Autonomy and Trust in the Workplace
-============================================================
 
 In this chapter, we will explore the definition of autonomy and trust in the workplace, the impact of autonomy and trust on personal and professional development, and strategies for building autonomy and trust in the workplace.
 

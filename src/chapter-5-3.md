@@ -1,5 +1,3 @@
-Using Employee Surveys and Suggestion Boxes
-===============================================================================================
 
 In this chapter, we will explore the importance of encouraging employee input and feedback in the workplace. We will discuss specific strategies for collecting and analyzing feedback, including employee surveys and suggestion boxes.
 

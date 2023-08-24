@@ -1,5 +1,3 @@
-Strategies for building autonomy and trust in the workplace
-=========================================================================================================================
 
 Autonomy and trust are essential components of a successful and engaged workforce. In this chapter, we'll explore some strategies for building autonomy and trust in the workplace.
 

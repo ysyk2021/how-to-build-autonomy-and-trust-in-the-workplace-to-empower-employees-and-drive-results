@@ -1,5 +1,3 @@
-Chapter 8: Recognizing and Rewarding Achievement
-================================================
 
 Recognizing and rewarding achievement is an important aspect of building autonomy and trust in the workplace. In this chapter, we will explore the role of recognizing and rewarding achievement, strategies for doing so, and using performance-based incentives and recognition programs.
 

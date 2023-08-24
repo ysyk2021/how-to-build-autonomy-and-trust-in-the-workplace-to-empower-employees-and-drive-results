@@ -1,5 +1,3 @@
-Chapter 3: Establishing Clear Expectations and Goals
-====================================================
 
 Establishing clear expectations and goals is an essential aspect of building autonomy and trust in the workplace. In this chapter, we will explore the importance of establishing clear expectations and goals, strategies for doing so, and using performance metrics and goal-setting tools.
 

@@ -1,5 +1,3 @@
-Chapter 9: Measuring Success in Building Autonomy and Trust in the Workplace
-============================================================================
 
 To ensure that efforts to build autonomy and trust in the workplace are effective, it is important to measure success. In this chapter, we will explore methods for measuring success, analyzing feedback and performance data, and adjusting autonomy and trust-building strategies based on feedback.
 

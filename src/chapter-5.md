@@ -1,5 +1,3 @@
-Chapter 5: Encouraging Employee Input and Feedback
-==================================================
 
 Encouraging employee input and feedback is an important aspect of building autonomy and trust in the workplace. In this chapter, we will explore the importance of encouraging employee input and feedback, strategies for doing so, and using employee surveys and suggestion boxes.
 

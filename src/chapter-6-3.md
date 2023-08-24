@@ -1,5 +1,3 @@
-Using Delegation and Empowerment Techniques
-==========================================================================================================
 
 One of the best ways to build autonomy and trust in the workplace is by allowing employees to have flexibility and decision-making authority. This involves delegating tasks, responsibilities, and decision-making power to employees, giving them the freedom to make decisions and take ownership of their work.
 

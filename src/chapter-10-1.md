@@ -1,5 +1,3 @@
-The Benefits of Applying Autonomy and Trust Skills to Empower Employees and Drive Results
-================================================================================================================================================================================
 
 In this chapter, we will examine the benefits of applying autonomy and trust skills to empower employees and drive results.
 

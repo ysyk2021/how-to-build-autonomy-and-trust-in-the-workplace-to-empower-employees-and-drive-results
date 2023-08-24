@@ -1,5 +1,3 @@
-Strategies for Encouraging Employee Input and Feedback
-==========================================================================================================
 
 In this chapter, we will explore specific strategies for encouraging employee input and feedback in the workplace. These strategies are designed to build trust and engagement among employees, and can lead to better decision-making and improved organizational performance.
 

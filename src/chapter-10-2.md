@@ -1,5 +1,3 @@
-Applying Autonomy and Trust Skills to Empower Employees and Drive Results - Strategies for Using Autonomy and Trust Skills to Empower Employees and Drive Results
-=============================================================================================================================================================================
 
 Applying autonomy and trust skills is essential for empowering employees and driving results in the workplace. In this chapter, we will discuss strategies for using autonomy and trust skills to empower employees and drive results.
 

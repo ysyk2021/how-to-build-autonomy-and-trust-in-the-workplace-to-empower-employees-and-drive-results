@@ -1,5 +1,3 @@
-Using Training and Coaching Programs
-=========================================================================================
 
 In this chapter, we will explore the use of training and coaching programs for providing adequate resources and support in the workplace. These programs can be particularly effective for empowering employees to develop new skills and knowledge, and for improving overall performance.
 

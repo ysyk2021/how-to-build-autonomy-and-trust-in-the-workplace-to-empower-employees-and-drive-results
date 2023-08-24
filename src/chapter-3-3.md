@@ -1,5 +1,3 @@
-Using Performance Metrics and Goal-Setting Tools
-======================================================================================================
 
 In this chapter, we will explore the use of performance metrics and goal-setting tools for establishing clear expectations and goals. These tools can be particularly effective for measuring progress toward goals, identifying areas where improvement is needed, and adjusting strategies as needed.
 

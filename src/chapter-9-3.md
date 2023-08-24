@@ -1,5 +1,3 @@
-Adjusting Autonomy and Trust-Building Strategies Based on Feedback
-================================================================================================================================================
 
 As with any organizational initiative, it is important to measure the success of efforts to build autonomy and trust in the workplace. In this chapter, we will explore how to measure success and adjust strategies based on feedback.
 

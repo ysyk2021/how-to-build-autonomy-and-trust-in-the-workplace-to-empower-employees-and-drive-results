@@ -1,5 +1,3 @@
-Definition of Autonomy and Trust in the Workplace
-===============================================================================================================
 
 For employees to feel empowered and motivated, autonomy and trust must be present in the workplace. In this chapter, we will define what autonomy and trust mean in the workplace and why they are important.
 

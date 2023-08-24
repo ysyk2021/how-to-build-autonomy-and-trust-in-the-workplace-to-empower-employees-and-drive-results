@@ -1,5 +1,3 @@
-Chapter 4: Providing Adequate Resources and Support
-===================================================
 
 Providing adequate resources and support is an important aspect of building autonomy and trust in the workplace. In this chapter, we will explore the role of providing resources and support, strategies for doing so, and using training and coaching programs.
 
