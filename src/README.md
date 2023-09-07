@@ -9,3 +9,7 @@ In this book, we'll cover topics such as workplace autonomy, employee empowermen
 This book is like having a leadership coach at your fingertips, ready to guide you through every aspect of building autonomy and trust in the workplace. By the end of this book, you'll have all the tools and strategies you need to create a culture that empowers employees to take ownership of their work, contribute to the success of the organization, and achieve optimal results. So let's get started!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
