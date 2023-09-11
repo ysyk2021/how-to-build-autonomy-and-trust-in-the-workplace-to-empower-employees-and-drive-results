@@ -1,5 +1,4 @@
-Chapter 20: Strategies for Recognizing and Rewarding Achievement
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Recognition and rewards play a pivotal role in building autonomy and trust in the workplace, empowering employees, and driving results. This chapter explores effective strategies for recognizing and rewarding achievements, fostering a culture of appreciation and motivation.
 

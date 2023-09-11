@@ -1,5 +1,4 @@
-Chapter 18: Using Delegation and Empowerment Techniques
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Delegation and empowerment techniques play a vital role in building autonomy and trust in the workplace. In this chapter, we will explore strategies for effective delegation and empowerment that empower employees, foster a sense of ownership, and drive positive results.
 

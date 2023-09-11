@@ -1,5 +1,4 @@
-Chapter 12: Using Employee Surveys and Suggestion Boxes
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Employee surveys and suggestion boxes are powerful tools for building autonomy and trust in the workplace. In this chapter, we will explore how organizations can harness the benefits of these tools to empower employees, strengthen communication, and drive positive results.
 

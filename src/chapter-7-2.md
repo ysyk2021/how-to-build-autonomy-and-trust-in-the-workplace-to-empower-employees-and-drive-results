@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Promoting Open Communication and Collaboration
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Open communication and collaboration are essential components of building autonomy and trust in the workplace. In this chapter, we will explore strategies for fostering these qualities among employees and promoting a culture of transparency, innovation, and engagement.
 

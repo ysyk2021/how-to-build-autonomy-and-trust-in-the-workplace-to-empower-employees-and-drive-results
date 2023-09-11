@@ -1,5 +1,4 @@
-Chapter 16: Strategies for Using Autonomy and Trust Skills to Empower Employees and Drive Results
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building autonomy and trust in the workplace is essential for empowering employees and driving results. In this chapter, we will explore effective strategies that can be employed to leverage these skills and create an environment of empowerment and success.
 

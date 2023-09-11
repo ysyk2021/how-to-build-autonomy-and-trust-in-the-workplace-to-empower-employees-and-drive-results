@@ -1,5 +1,4 @@
-Chapter 15: Demonstrating Leadership and Communication Skills
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective leadership and communication are crucial for building autonomy and trust in the workplace. In this chapter, we will explore how leaders can demonstrate these skills to empower employees, drive results, and create a positive work environment.
 

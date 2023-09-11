@@ -1,5 +1,4 @@
-Chapter 18: Analyzing Feedback and Performance Data and KPIs
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the process of building autonomy and trust in the workplace, analyzing feedback and performance data, and key performance indicators (KPIs) plays a crucial role. This chapter will explore the importance of analyzing these metrics and provide guidance on how to effectively utilize them to empower employees and drive results.
 

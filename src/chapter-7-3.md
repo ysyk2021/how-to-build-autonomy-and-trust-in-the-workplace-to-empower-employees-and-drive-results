@@ -1,5 +1,4 @@
-Chapter 13: Using Team-Building Exercises and Feedback Loops
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Team-building exercises and feedback loops are powerful tools for fostering collaboration, strengthening relationships, and driving continuous improvement. In this chapter, we will explore how organizations can leverage these strategies to build autonomy and trust in the workplace, empowering employees and driving results.
 

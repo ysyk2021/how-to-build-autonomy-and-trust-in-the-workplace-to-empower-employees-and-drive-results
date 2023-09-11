@@ -1,5 +1,4 @@
-Chapter 23: Strategies for Building Autonomy and Trust in the Workplace
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building autonomy and trust in the workplace is crucial for empowering employees and driving positive results. In this chapter, we will explore effective strategies that organizations can employ to foster autonomy and trust among their workforce.
 

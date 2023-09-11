@@ -1,5 +1,4 @@
-Chapter 17: Definition of Autonomy and Trust in the Workplace
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Autonomy and trust are two fundamental elements in building a positive work environment that empowers employees and drives results. In this chapter, we will define autonomy and trust in the workplace and explore their significance in fostering productivity, engagement, and job satisfaction.
 

@@ -1,5 +1,4 @@
-Chapter 19: Strategies for Providing Adequate Resources and Support
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 To build autonomy and trust in the workplace and empower employees, it is essential to provide them with adequate resources and support. In this chapter, we will explore strategies for ensuring employees have the necessary tools, resources, and support to excel in their roles and drive positive results.
 

@@ -1,5 +1,4 @@
-Chapter 17: The Benefits of Applying Autonomy and Trust Skills to Empower Employees and Drive Results
-=====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Applying autonomy and trust skills in the workplace can have numerous benefits for both employees and the organization as a whole. In this chapter, we will explore the positive outcomes that can be achieved by fostering autonomy and trust in the workplace.
 

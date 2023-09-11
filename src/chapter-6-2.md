@@ -1,5 +1,4 @@
-Chapter 17: Strategies for Allowing Flexibility and Decision-making Authority
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building autonomy and trust in the workplace is crucial for empowering employees and driving results. In this chapter, we will explore strategies for providing flexibility and decision-making authority to enhance employee autonomy, engagement, and overall performance.
 

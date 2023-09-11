@@ -1,5 +1,4 @@
-Chapter 28: The Impact of Autonomy and Trust in the Workplace on Personal and Professional Development
-======================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Autonomy and trust in the workplace have a profound impact on personal and professional development. In this chapter, we will explore how fostering autonomy and trust can unlock the potential for growth, learning, and advancement in employees' personal and professional lives.
 

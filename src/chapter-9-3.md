@@ -1,5 +1,4 @@
-Chapter 19: Adjusting Autonomy and Trust-Building Strategies Based on Feedback
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to build autonomy and trust in the workplace, it is essential to continuously adjust strategies based on feedback received. This chapter will delve into the significance of adapting autonomy and trust-building strategies and provide insights on how to effectively incorporate feedback to empower employees and drive results.
 
